@@ -1,1 +1,0 @@
-# politeappsdev.github.io
